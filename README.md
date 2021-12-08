@@ -1,4 +1,3 @@
-i like python, duh
+knockstick#8242
 
-minecraft is the best game
-discord: knockstc#8242
+And yes, im a stick.
